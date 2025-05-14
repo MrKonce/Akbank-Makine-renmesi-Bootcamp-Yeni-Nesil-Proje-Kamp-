@@ -1,1 +1,1 @@
-# Akbank-Makine-renmesi-Bootcamp-Yeni-Nesil-Proje-Kamp-
+# Akbank-Makine-ogrenmesi-Bootcamp-Yeni-Nesil-Proje-Kampi
